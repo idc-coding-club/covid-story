@@ -3,3 +3,5 @@ Her genomics lab at the prestigous Wuhan institute of virology had a faulty elec
 In this darkness, he started panicking, given he was a claustrophobic. 
 
 He trips on one of the glass boxes. Something flies away in desperation.
+
+It was bat! 
